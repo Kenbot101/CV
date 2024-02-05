@@ -1,1 +1,1 @@
-Here lies the CV of one Mr. Kenneth
+Here lies the CV of Kenbot.
